@@ -1,5 +1,5 @@
 #  gen about ?!
-"i like it raw, i make rubbers rip. im going balls deep, fuck just the tip."
+""
 ‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 ╰─ 🍔 about me:
 ୨୧┇name: yurri (fav name!), yurrii or yurii
